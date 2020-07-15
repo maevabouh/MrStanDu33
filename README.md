@@ -8,7 +8,7 @@
 👥 Le contact avec mes partenaires est pour moi une priorité. Vous n'avez pas peur de prendre un 🍻 avec moi ? Alors venez !<br/>
 🏆 Collaborer avec moi c'est avoir l'assurance d'avoir un produit sur mesure et maintenable facilement.<br/>
 ⏳ Me confier votre projet c'est être certain du respect des DeadLines.<br/>
-💸 Vous en avez assez de voir des tarifs exorbitants dépassant votre budget ? Avec moi, mes tarifs qui s'adaptent à votre budget.<br/>
+💸 Vous en avez assez de voir des tarifs exorbitants dépassant votre budget ? Avec moi, des tarifs qui s'adaptent à votre budget.<br/>
 🏢 Avec moi, la question de la localisation de la mission ne se pose pas. Où que vous soyez, je peux si besoin travailler à vos côtés!<br/>
 📊 Vous avez des techniques de travail déjà bien ficelées ? Pas de soucis : je m'adapte à votre WorkFlow !<br/>
 🥗 Une envie soudaine d'un déjeuner ? Je vous en offre une à chaque fin de mission !<br/>
